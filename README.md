@@ -1,3 +1,8 @@
+COLLECTED FROM: https://x.com/Sonic_Iso/status/2107240372782928089?s=20
+
+NOT MINE
+
+
 # GoldHEN v2.4b18.9 — Community Source Reconstruction
 
 ## About
